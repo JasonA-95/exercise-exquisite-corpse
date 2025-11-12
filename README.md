@@ -1,2 +1,8 @@
-# exercise-exquisite-corpse
-exercise-exquisite-corpse
+La clé des secrets oubliés
+
+Par une nuit où la pluie tombait sans répit, Élio découvrit une clé étrange au fond de sa poche.
+Personne ne se souvenait de l’avoir vue entrer dans sa vie, et pourtant elle semblait murmurer son nom.
+Curieux et inquiet à la fois, il sentit que ce petit objet allait bouleverser tout ce qu’il connaissait.
+Élio tourna la clé entre ses doigts, et un frisson parcourut son dos comme si elle réclamait quelque chose.
+Un vieux manoir oublié, à la lisière de la forêt, surgit soudain dans son esprit, clair et précis, alors qu’il n’y avait jamais mis les pieds.
+Sans réfléchir, il se mit en route, guidé par une force invisible et une curiosité qui le dépassait.
