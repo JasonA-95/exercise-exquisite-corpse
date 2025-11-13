@@ -10,3 +10,7 @@ Sans réfléchir, il se mit en route, guidé par une force invisible et une curi
 La pluie s’intensifiait à mesure qu’il approchait du manoir, chaque pas résonnant comme un écho du passé.
 Devant la porte massive, la clé sembla vibrer entre ses doigts, impatiente d’être utilisée.
 Lorsqu’il l’inséra dans la serrure, un souffle glacé s’échappa, et une voix ancienne murmura : « Enfin, tu es revenu. »
+
+Une vague de souvenirs, d'images semblait le traverser, quelques larmes finirent par couler le long de ses joues.
+Un clic dans la serrure et il poussa la porte pour y retrouver un vase poser sur une table en bois, des fleurs fraichement déposer en son centre décorais la piéce.
+Un pas, puis deux avant que le vase n'éclate.
